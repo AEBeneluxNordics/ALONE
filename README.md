@@ -10,7 +10,7 @@ COMPETITION RULES
 
 1.	We are promoting the ALONE and HISTORY SWEDEN® Channel Competition (the Competition).
 2.	There are 3 prizes Prize. The first Prize is a 2-day survival course offered by True Nature Sweden. There are 2 runner up Prizes, both consisting of a mystery bundle of HISTORY SWEDEN® merchandise.
-3.	To enter the Competition you must complete a quiz via the HISTORY SWEDEN® Facebook and Instagram accounts. 
+3.	To enter the Competition you must complete a quiz via the HISTORY SWEDEN® competition website: https://forms.gle/3C4j56ZhCiCVoW4k6 
 4.	The Competition will run between 05 October 2022 and 19 October 2022.  Entries close at midnight on 19 October 2022.  Any entries received after midnight on 19 October 2022 will not be entered.  
 5.	Please note that the dates set out in these Terms and Conditions may be subject to change at any time.  In addition, we reserve the right, in our reasonable discretion, to add to, amend, vary or waive any of the other Terms and Conditions on reasonable notice.
 6.	Entry is limited to one per person.
@@ -22,8 +22,6 @@ COMPETITION RULES
 12.	Please allow 6 months for delivery of Prize(s) from the Confirmation Date.
 13.	We will process your data in accordance with clauses 8.6 and 8.7 of the Competition Terms below and our Privacy Policy.
 14.	Promoter: AETN UK, 1 Queen Caroline Street, Hammersmith, London, W6 9YN.  Although this Competition is run by AETN UK, the terms and conditions of any third party supplier (“the Prize Providers”) also apply and must be accepted and complied with by the winner(s).   These include but are not limited to compliance with any age restrictions and/or health and safety regulations which apply whilst that winner enjoys any element of the Prize and/or are taking part in any other promotional activity.
-15.	Prize Provider: AETN UK
-By clicking this box you confirm that you have understood and accept the Rules set out above and the Competition Terms and Conditions.
  
 AETN UK
 ALONE and HISTORY SWEDEN® Channel Competition 
