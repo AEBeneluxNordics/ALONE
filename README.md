@@ -159,6 +159,3 @@ AETN UK Company Number 03105704
 
 Updated 21/05/2018
 v.1.0
-
-
-![image](https://user-images.githubusercontent.com/84396215/194086656-db3932a7-120f-4f30-b501-c93c1ca88c30.png)
