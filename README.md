@@ -1,30 +1,44 @@
 # ALONE
-ALONE Quiz &amp; Competition - The HISTORY Channel
 
-AETN UK 
-ALONE and HISTORY SWEDEN® Channel Competition
+AETN EMEA
+
+Alone: Predator Lake and The HISTORY Channel Competition
 Rules and Terms and Conditions 
 
+1.	We are promoting the Alone: Predator Lake and The HISTORY Channel Competition (the Competition).
+2.	There is 1 Prize. The Prize consists of 1 x Alone Logo Embroidered Champion Packable Jacket.
+3.	To enter the Competition you must like HISTORYBenelux (https://www.facebook.com/HISTORYBenelux/) on Facebook and answer the following question by commenting under the competition post on the Facebook page: “Tell us what you would struggle with the most if you went on Alone: (1) The cold, (2) The hunger, (3) The isolation, (4) The wildlife, (5) The survival skills.
+4.	The Competition will run between 23rd August 2023 and 6th September 2023. Entries close at midnight on 6th September 2023. Any entries received after midnight on 6 September 2023 will not be entered. 
+5.		Please note that the dates set out in these Terms and Conditions may be subject to change at any time.  In addition, we reserve the right, in our reasonable discretion, to add to, amend, vary or waive any of the other Terms and Conditions on reasonable notice.
+6.	Entry is limited to one per person
+7.	This Competition is open to all residents of Sweden aged 18 or over on or before 6 September 2023 and excluding employees of AETN UK, Sky Limited or anyone connected with the administration of the Competition.
+8.	The draw will take place on 7 September 2023 at 14:00 GMT.  Before the draw can take place, all entries will be collated (“the Collated Entries”). All participants that answered the question will be entered into the prize draw.  
+9.	The 2 Prize Winners will be chosen at random from all of the correct entries and will be notified by email on 18th September 2023 (“the Notification Date”) and their eligibility to enter the Competition will then be confirmed. Once we have verified each winner’s eligibility (“Confirmation Date”), we will confirm all arrangements connected to the delivery and enjoyment of their Prize.  
+10.	Please allow 1 month for delivery of Prize(s) from the Confirmation Date.
+11.	Terms below and our Privacy Policy.
+12.	Promoter: AETN UK, 1 Queen Caroline Street, Hammersmith, London, W6 9YN.  Although this Competition is run by AETN UK, the terms and conditions of any third party supplier (“the Prize Providers”) also apply and must be accepted and complied with by the winner(s).   These include but are not limited to compliance with any age restrictions and/or health and safety regulations which apply whilst that winner enjoys any element of the Prize and/or are taking part in any other promotional activity.
+13.	Prize Provider: AETN UK
+By clicking this box you confirm that you have understood and accept the Rules set out above and the Competition Terms and Conditions.
 
-COMPETITION RULES
 
-1.	We are promoting the ALONE and HISTORY SWEDEN® Channel Competition (the Competition).
-2.	There are 3 prizes Prize. The first Prize is a 2-day survival course offered by True Nature Sweden. There are 2 runner up Prizes, both consisting of a mystery bundle of HISTORY SWEDEN® merchandise.
-3.	To enter the Competition you must complete a quiz via the HISTORY SWEDEN® competition website: https://forms.gle/3C4j56ZhCiCVoW4k6 
-4.	The Competition will run between 05 October 2022 and 26 October 2022.  Entries close at midnight on 26 October 2022.  Any entries received after midnight on 26 October 2022 will not be entered.  
-5.	Please note that the dates set out in these Terms and Conditions may be subject to change at any time.  In addition, we reserve the right, in our reasonable discretion, to add to, amend, vary or waive any of the other Terms and Conditions on reasonable notice.
-6.	Entry is limited to one per person.
-7.	This Competition is open to all Swedish residents aged 18 or over on or before 26 October 2022, and excluding employees of A+E Networks or anyone connected with the administration of the Competition.
-8.	All entrants on the date of entry must meet the requirements of True Nature Sweden’s terms and conditions, including any medical and special requirements,  as stated here: https://www.truenaturesweden.com/terms-conditions. 
-9.	All entrants must make themselves familiar with the terms and conditions of participation in True Nature Sweden’s two-day survival course and agree to any potential risks involved in taking part.  
-10.	The draw will take place on 01 November 2022.  Before the draw can take place, all entries will be collated (“the Collated Entries”). All participants that answered the question will be entered into the prize draw.  
-11.	The Prize Winners will be chosen at random from all of the correct entries and will be notified by email within one month of the draw (“the Notification Date”) and their eligibility to enter the Competition will then be confirmed. Once we have verified each winner’s eligibility (“Confirmation Date”), we will confirm all arrangements connected to the delivery and enjoyment of their Prize.  
-12.	Please allow 6 months for delivery of Prize(s) from the Confirmation Date.
-13.	We will process your data in accordance with clauses 8.6 and 8.7 of the Competition Terms below and our Privacy Policy.
-14.	Promoter: AETN UK, 1 Queen Caroline Street, Hammersmith, London, W6 9YN.  Although this Competition is run by AETN UK, the terms and conditions of any third party supplier (“the Prize Providers”) also apply and must be accepted and complied with by the winner(s).   These include but are not limited to compliance with any age restrictions and/or health and safety regulations which apply whilst that winner enjoys any element of the Prize and/or are taking part in any other promotional activity.
- 
-AETN UK
-ALONE and HISTORY SWEDEN® Channel Competition 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+AETN UK 
+Alone: Predator Lake and The HISTORY Channel Competition
 Rules and Terms and Conditions 
 
 COMPETITION TERMS AND CONDITIONS (UK) 
@@ -49,7 +63,7 @@ SUMMARY
 
 2.	ELIGIBILITY TO ENTER A COMPETITION
 2.1	In order to make a valid entry into a Competition you must:
-2.1.1	be a resident of Sweden;
+2.1.1	be a resident of the United Kingdom or Isle of Man;
 2.1.2	use your legal name;
 2.1.3	unless otherwise stated, enter as an individual only, not as part of a syndicate, group or agency;
 2.1.4	be or over the age stated in the Competition Rules on the date of your entry of the Competition; and
@@ -79,8 +93,6 @@ If you are selected as a Winner but after entering the Competition subsequently 
 4.7	Unless otherwise specified, a Participant may not win more than one Prize per Competition and we or the Prize Provider reserve the right to withhold or reclaim any second or subsequent Prize.
 4.8	There is no cash alternative or refund for unavailable portions of the Prize.  In the unlikely event this prize should become unavailable we reserve the right to substitute for a prize of equal or greater value.
 4.9	It is your responsibility to advise us of any circumstances that may prevent you and/or your companion (if relevant) from participating in any element of the Prize you have been awarded, including but not limited to medical conditions or personal circumstance.
-4.9.1     You agree that A+E Networks will not be liable for any risks or losses which result as a consequence of accepting the Prize or participating in any element of the Prize, where a medical condition or personal circumstance which may prevent participation has not been made clear to A+E Networks before the Prize Draw has taken place.
-
 
 5.	HOLIDAY PRIZES
 5.1	Holiday Prizes must be taken in accordance with the dates, destinations and number of passengers specified in the individual Competition Rules. Holidays are non-transferable and are subject to availability. 
@@ -157,5 +169,5 @@ In the case of Prizes in the form of tickets, you will be bound by and comply wi
 For all queries or the name(s) of the verified winner(s) (which will only be available one month from the draw date) please contact:  AETN UK, Competition Queries, Legal & Business Affairs Department, 1 Queen Caroline Street, London, W6 9YN.
 AETN UK Company Number 03105704
 
-Updated 21/05/2018
+Updated 15/08/2023
 v.1.0
