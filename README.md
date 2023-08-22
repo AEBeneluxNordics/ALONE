@@ -3,7 +3,10 @@
 AETN EMEA
 
 Alone: Predator Lake and The HISTORY Channel Competition
+
 Rules and Terms and Conditions 
+
+COMPETITION RULES
 
 1.	We are promoting the Alone: Predator Lake and The HISTORY Channel Competition (the Competition).
 2.	There is 1 Prize. The Prize consists of 1 x Alone Logo Embroidered Champion Packable Jacket.
@@ -21,28 +24,16 @@ Rules and Terms and Conditions
 By clicking this box you confirm that you have understood and accept the Rules set out above and the Competition Terms and Conditions.
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 AETN UK 
+
 Alone: Predator Lake and The HISTORY Channel Competition
+
 Rules and Terms and Conditions 
 
-COMPETITION TERMS AND CONDITIONS (UK) 
+COMPETITION TERMS AND CONDITIONS
+
 SUMMARY
+
 •	By entering the Competition you confirm that you have understood and accept the Rules set out above and these Competition Terms and Conditions.
 • 	This constitutes a legal agreement between us and you.  Please read it carefully.
 •	This Agreement is made up of the Competition Rules and these Competition Terms and Conditions.
