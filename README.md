@@ -24,7 +24,7 @@ COMPETITION RULES
 By clicking this box you confirm that you have understood and accept the Rules set out above and the Competition Terms and Conditions.
 
 
-AETN UK 
+AETN EMEA 
 
 Alone: Predator Lake and The HISTORY Channel Competition
 
