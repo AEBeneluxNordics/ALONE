@@ -10,7 +10,7 @@ COMPETITION RULES
 
 1.	We are promoting the Alone: Predator Lake and The HISTORY Channel Competition (the Competition).
 2.	There is 1 Prize. The Prize consists of 1 x Alone Logo Embroidered Champion Packable Jacket.
-3.	To enter the Competition you must like HISTORYBenelux (https://www.facebook.com/HISTORYBenelux/) on Facebook and answer the following question by commenting under the competition post on the Facebook page: “Tell us what you would struggle with the most if you went on Alone: (1) The cold, (2) The hunger, (3) The isolation, (4) The wildlife, (5) The survival skills.
+3.	To enter the Competition you must like HISTORYSverige (https://www.facebook.com/HISTORYSverige/) on Facebook and answer the following question by commenting under the competition post on the Facebook page: “Tell us what you would struggle with the most if you went on Alone: (1) The cold, (2) The hunger, (3) The isolation, (4) The wildlife, (5) The survival skills.
 4.	The Competition will run between 23rd August 2023 and 6th September 2023. Entries close at midnight on 6th September 2023. Any entries received after midnight on 6 September 2023 will not be entered. 
 5.		Please note that the dates set out in these Terms and Conditions may be subject to change at any time.  In addition, we reserve the right, in our reasonable discretion, to add to, amend, vary or waive any of the other Terms and Conditions on reasonable notice.
 6.	Entry is limited to one per person
